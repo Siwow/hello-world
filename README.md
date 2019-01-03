@@ -7,4 +7,6 @@ I am a graduated electrical and electronics engineer who is not fond of his occu
 
 Don't let your head down, work work work but most importantly repetition is your key.
 
+Let's make it together, m'kay?
+
 Good Luck!
